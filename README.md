@@ -2,6 +2,7 @@
 **A passionate Business Analyst**
 
 Personal Portfolio 👉 🔗 **https://bhavithakarepf.lovable.app/** 
+
 Email Me 👉 ✉️ **bhavithakare002@gmail.com** For JobOpportunity/Collaboration/Project or Anything Else. 😊😊
 
 - 🔭 **I’m currently working on:** Building interactive dashboards and data-driven insights projects using Excel, Power BI, and Python to strengthen my Business Analytics portfolio.
